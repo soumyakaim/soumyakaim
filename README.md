@@ -1,12 +1,12 @@
 👋 Hi, I’m @soumyakaim a Research Masters Student from University of Groningen. 
 
-👀 I’m interested in understading the mechanics of psyciactric disorders and their symptoms. 
+👀 I’m interested in understanding the mechanics of psyciactric disorders and their symptoms. 
 
-🌱 I’m currently learning about sensorimotor conflicts and how they can be induced usigng a robot. 
+🌱 I’m currently learning about sensorimotor conflicts and how they can be induced using a robot. 
 
-💞️ I’m looking to collaborate on EEG/fNIRS/fMRI studies exploring sensorimotor conflicts and hallucinations. 
+💞️ I’m looking to collaborate on EEG/fNIRS/fMRI/PET studies exploring sensorimotor conflicts, hallucinations and much more. 
 
-📫 Please email me at skaim1611@gmail.com if interested. 
+📫 Please email me at soumyakaim123@gmail.com if interested. 
 
 ⚡ Hobbies : Walking along canals, cooking and watching movies. 
 
